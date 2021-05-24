@@ -9,7 +9,7 @@ Art & Tech Enthusiast
 [Pinterest](www.pinterest.com/elrizwiraswara)\
 [Facebook](www.facebook.com/elrizwiraswara)\
 [LinkedIn](www.linkedin.com/elrizwiraswara)\
-[YouTube](www.youtube.com/elrizwiraswara)\
+[YouTube](www.youtube.com/elrizwiraswara)
 
 **Website :**\
 [www.elriz.web.id](www.elriz.web.id)
