@@ -1,6 +1,9 @@
 **Elriz Wiraswara**
 Art & Tech Enthusiast
 
+Fav quote :
+> Don't just exist, live and be good!
+
 **Find me :**
 [GitHub](www.github.com/elrizwiraswara)
 [Stack Overflow](www.stackoverflow.com/users/13082754)
