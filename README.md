@@ -1,21 +1,18 @@
-**Elriz Wiraswara**
+**Elriz Wiraswara**\
 Art & Tech Enthusiast
 
-Fav quote :
-> Don't just exist, live and be good!
+**Find me :**\
+[GitHub](www.github.com/elrizwiraswara)\
+[Stack Overflow](www.stackoverflow.com/users/13082754)\
+[Instagram](www.instagram.com/elrizwiraswara)\
+[Twitter](www.twitter.com/elrizwiraswara)\
+[Pinterest](www.pinterest.com/elrizwiraswara)\
+[Facebook](www.facebook.com/elrizwiraswara)\
+[LinkedIn](www.linkedin.com/elrizwiraswara)\
+[YouTube](www.youtube.com/elrizwiraswara)\
 
-**Find me :**
-[GitHub](www.github.com/elrizwiraswara)
-[Stack Overflow](www.stackoverflow.com/users/13082754)
-[Instagram](www.instagram.com/elrizwiraswara)
-[Twitter](www.twitter.com/elrizwiraswara)
-[Pinterest](www.pinterest.com/elrizwiraswara)
-[Facebook](www.facebook.com/elrizwiraswara)
-[LinkedIn](www.linkedin.com/elrizwiraswara)
-[YouTube](www.youtube.com/elrizwiraswara)
-
-**Website :**
+**Website :**\
 [www.elriz.web.id](www.elriz.web.id)
 
-**Contact :**
+**Contact :**\
 elriz@elriz.web.id
