@@ -15,4 +15,4 @@ Art & Tech Enthusiast
 [www.elriz.web.id](https://www.elriz.web.id)
 
 **Contact :**\
-[elriz@elriz.web.id](mailto://elriz@elriz.web.id)
+[elriz@elriz.web.id](mailto:elriz@elriz.web.id)
