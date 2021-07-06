@@ -12,7 +12,7 @@ Art & Tech Enthusiast
 [YouTube](https://www.youtube.com/elrizwiraswara)
 
 **Website :**\
-[www.elriz.web.id](https://www.elriz.web.id)
+[www.elrizwiraswara.com](https://www.elrizwiraswara.com)
 
 **Contact :**\
-[elriz@elriz.web.id](mailto:elriz@elriz.web.id)
+[elriz@elrizwiraswara.com](mailto:elriz@elrizwiraswara.com)
